@@ -4,3 +4,6 @@
 <p align = "center" >
   $\color{#f5c645}{\textsf{style changes a lot, low social battery}}$
 </p>
+<p align = "center" >
+  $\color{#fff582}{\textsf{w2i if you want direct responses }}$
+</p>
