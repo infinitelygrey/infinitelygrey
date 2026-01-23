@@ -15,5 +15,8 @@
  <img src="https://watermelon.crd.co/assets/images/gallery11/5d5589cb.gif?v=e2e5e274" />
 </p>
 <p align = "center" >
- <img src="https://files.catbox.moe/0e85yu.webp" />
+ <img src="https://files.catbox.moe/5sejzh.webp" />
+</p>
+<p align = "center" >
+  $\color{#9ADD66}{\textsf{ponytown try hard? watch this }}$
 </p>
