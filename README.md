@@ -1,25 +1,23 @@
 <p align = "center" >
-  <img src="https://autism.crd.co/assets/images/gallery01/d43ca74b.gif?v=d6547f5c" />
+  $\color{#E9D973}{\textsf{c+h plsplsplsplsp }}$
+</p>
+<p align = "center" >
+  <img src="https://enchantments.carrd.co/assets/images/gallery08/c6f60560.gif?v=5c8435d5" />
 </p>
 <p align = "center" >
 <p align = "center" >
-  <img src="https://static.wikia.nocookie.net/dragon-village-collection/images/9/90/Semilla_desire_adult.gif/revision/latest?cb=20240722110538" />
+  <img src="https://static.wikia.nocookie.net/dragon-village-collection/images/4/44/Laby_restricted_touch.gif/revision/latest?cb=20241020013520" />
 </p>
 <p align = "center" >
-  $\color{#2DB38D}{\textsf{style changes a lot, low social battery}}$
+  $\color{#56C8DA}{\textsf{style changes a lot, low social battery}}$
 </p>
 <p align = "center" >
-  $\color{#86B15C}{\textsf{osdd - 1b . i'm a system!}}$
+  $\color{#D99562}{\textsf{osdd - 1b . i'm a system!}}$
 </p>
 <p align = "center" >
-  $\color{#9ADD66}{\textsf{w2i if you want direct responses }}$
+  $\color{#E9D973}{\textsf{w2i if you want direct responses }}$
 </p>
 <p align = "center" >
- <img src="https://watermelon.crd.co/assets/images/gallery11/5d5589cb.gif?v=e2e5e274" />
+ <img src="https://enchantments.carrd.co/assets/images/gallery16/10fe7b9f.gif?v=5c8435d5" />
 </p>
 <p align = "center" >
- <img src="https://files.catbox.moe/5sejzh.webp" />
-</p>
-<p align = "center" >
-  $\color{#9ADD66}{\textsf{ponytown try hard? watch this }}$
-</p>
