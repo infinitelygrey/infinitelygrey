@@ -2,6 +2,9 @@
   $\color{#E9D973}{\textsf{c+h plsplsplsplsp }}$
 </p>
 <p align = "center" >
+  $\color{#D99562}{\textsf{i sit below bakery + w oomfs }}$
+</p>
+<p align = "center" >
   <img src="https://enchantments.carrd.co/assets/images/gallery08/c6f60560.gif?v=5c8435d5" />
 </p>
 <p align = "center" >
