@@ -1,5 +1,5 @@
 <p align = "center" >
-  $\color{#E9D973}{\textsf{c+h plsplsplsplsp }}$
+  $\color{#E9D973}{\textsf{c+h enc + i c+h with strangers lots. say hi! }}$
 </p>
 <p align = "center" >
   $\color{#D99562}{\textsf{i sit below bakery + w oomfs }}$
