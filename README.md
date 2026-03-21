@@ -1,5 +1,5 @@
 <p align = "center" >
-  $\color{#E9D973}{\textsf{c+h enc + i c+h with strangers lots. say hi! }}$
+  $\color{#DFC895}{\textsf{c+h enc + i c+h with strangers lots. say hi! }}$
 </p>
 <p align = "center" >
   $\color{#D99562}{\textsf{i sit below bakery + w oomfs }}$
@@ -9,16 +9,16 @@
 </p>
 <p align = "center" >
 <p align = "center" >
-  <img src="https://static.wikia.nocookie.net/dragon-village-collection/images/4/44/Laby_restricted_touch.gif/revision/latest?cb=20241020013520" />
+  <img src="https://files.catbox.moe/e1wsoe.gif" />
 </p>
 <p align = "center" >
-  $\color{#56C8DA}{\textsf{style changes a lot, low social battery}}$
+  $\color{#ECE6D8}{\textsf{style changes a lot, low social battery}}$
 </p>
 <p align = "center" >
-  $\color{#D99562}{\textsf{osdd - 1b . i'm a system!}}$
+  $\color{#FFE8A1}{\textsf{osdd - 1b . i'm a system!}}$
 </p>
 <p align = "center" >
-  $\color{#E9D973}{\textsf{w2i if you want direct responses }}$
+  $\color{#E1B16A}{\textsf{w2i if you want direct responses }}$
 </p>
 <p align = "center" >
  <img src="https://enchantments.carrd.co/assets/images/gallery16/10fe7b9f.gif?v=5c8435d5" />
