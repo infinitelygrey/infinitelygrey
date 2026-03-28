@@ -1,26 +1,26 @@
 <p align = "center" >
-  $\color{#DFC895}{\textsf{c+h enc + i c+h with strangers lots. say hi! }}$
+  $\color{#D0CFFF}{\textsf{c+h enc + i c+h with strangers lots. say hi! }}$
 </p>
 <p align = "center" >
-  $\color{#D99562}{\textsf{i sit below bakery + w oomfs }}$
+  $\color{#7CBBFF}{\textsf{i sit below bakery + w oomfs }}$
 </p>
 <p align = "center" >
-  <img src="https://enchantments.carrd.co/assets/images/gallery08/c6f60560.gif?v=5c8435d5" />
+  <img src="https://pix.crd.co/assets/images/gallery05/77d3eca9.gif?v=15eb4270" />
 </p>
 <p align = "center" >
 <p align = "center" >
-  <img src="https://files.catbox.moe/e1wsoe.gif" />
+  <img src="https://static.wikia.nocookie.net/dragon-village-collection/images/6/61/Metis_02_f_adult_w.png/revision/latest/scale-to-width-down/180?cb=20240229035736" />
 </p>
 <p align = "center" >
-  $\color{#ECE6D8}{\textsf{style changes a lot, low social battery}}$
+  $\color{#E3FAFF}{\textsf{style changes a lot, low social battery}}$
 </p>
 <p align = "center" >
-  $\color{#FFE8A1}{\textsf{osdd - 1b . i'm a system!}}$
+  $\color{#D0CFFF}{\textsf{osdd - 1b . i'm a system!}}$
 </p>
 <p align = "center" >
-  $\color{#E1B16A}{\textsf{w2i if you want direct responses }}$
+  $\color{#7CBBFF}{\textsf{w2i if you want direct responses }}$
 </p>
 <p align = "center" >
- <img src="https://enchantments.carrd.co/assets/images/gallery16/10fe7b9f.gif?v=5c8435d5" />
+ <img src="https://pix.crd.co/assets/images/gallery12/e9ca89ff.gif?v=15eb4270" />
 </p>
 <p align = "center" >
