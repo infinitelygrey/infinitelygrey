@@ -15,6 +15,9 @@
   $\color{#E3FAFF}{\textsf{low social battery - w2i }}$
 </p>
 <p align = "center" >
+  $\color{#7DB7D1}{\textsf{intp 5w6 sp/sx 593}}$
+</p>
+<p align = "center" >
 <a href="https://rentry.co/zubzero">byi</a> <a href="https://rentry.co/clearingsky">ext.</a> <a href="https://rentry.co/deepfrost">main</a>
 </p>
 <p align = "center" >
