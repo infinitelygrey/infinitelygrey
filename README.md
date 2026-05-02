@@ -15,9 +15,6 @@
   $\color{#E3FAFF}{\textsf{style changes a lot, low social battery}}$
 </p>
 <p align = "center" >
-  $\color{#D0CFFF}{\textsf{osdd - 1b . i'm a system!}}$
-</p>
-<p align = "center" >
   $\color{#7CBBFF}{\textsf{w2i if you want direct responses }}$
 </p>
 <p align = "center" >
