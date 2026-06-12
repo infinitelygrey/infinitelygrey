@@ -21,7 +21,7 @@
   $\color{#d0cfff}{\textsf{sp549 + secret sx6}}$
 </p>
 <p align = "center" >
-<a href="https://rentry.co/zubzero">byi</a> <a href="https://rentry.co/clearingsky">ext.</a> <a href="https://rentry.co/deepfrost">main</a>
+<a href="https://rentry.co/zubzero">byi</a> <a href="https://rentry.co/lovedrugs">main</a> <a href="https://rentry.co/deepfrost">main2</a>
 </p>
 <p align = "center" >
  <img src="https://pix.crd.co/assets/images/gallery12/e9ca89ff.gif?v=15eb4270" />
